@@ -1,29 +1,4 @@
-## Netflix-4K HDR超高清影视会员        
-### 更新时间 2022-05-29
+## 此页面不再更新账号
 
------------------------------------------
-| |账号 Netflix ID|密码 Password|下一次续费日期|
-| :----: | :----: | :----: | :----: |
-|ID 1|~~lhnrcaeowc@outlook.com~~|扫一扫获取| 5月31日|
-|ID 2|ct133475@dd175.cn|扫一扫获取|6月31日|
-|ID 3|~~untmyyrcza@hotmail.com~~|扫一扫获取|6月30日|
-|ID 4|yhj0142@163.com|扫一扫获取| 5月26日|
-|ID 5|77775227@8w9t.com|扫一扫获取| 5月26日|
-|ID 6|~~yxw5928@163.com~~|扫一扫获取| 5月24日|
-|ID 7|pvqkwdjcqek@outlook.com|扫一扫获取| 6月30日|
-
------------------------------------------
-
-### 获取所有密码请[点击进入](https://afdian.net/@lifan/plan "悬停显示")
-### 可永久使用，发邮件可再次找我获取最新账号
-### 我的TG：@raoley
----
-### 为了保证长期使用，请不要修改任何资料。
-
--
--
-
-   ### 你的宝贵支持，是我前进的动力！
-
-![weixin](https://github.com/raoli1986/raoli1986.github.io/blob/main/weixinS.jpg)
-
+## 更多账号请进入我的电报群组https://t.me/Lifan86
+## 或者进入我的店铺租用http://lifan86.buzz/goods/12.html
